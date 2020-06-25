@@ -1,0 +1,2 @@
+# XTZ-COINLIST-HACK2020
+Project name: TZ21 
